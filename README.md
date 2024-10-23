@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @tiauayen
+- 👋 Hi, I’m Toan
 - 👀 I’m interested in Videogame
 - 🌱 I’m currently learning in Huflit
 - 💞️ I’m looking to collaborate on tinder
